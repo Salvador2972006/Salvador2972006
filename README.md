@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Salvador2972006
+- 👀 I’m interested in build projects/mini projects
+- 🌱 I’m currently learning HTML5
+- 💞️ I’m looking to collaborate on team/group
+- 📫 How to reach me ... on WhatsApp,Instagram,Discord
+- +351967073926 / quinti972 / Salvador#5982
